@@ -1,2 +1,2 @@
 # Scorpio
-蹒跚学步
+I am new here.
